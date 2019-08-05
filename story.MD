@@ -1,13 +1,14 @@
 
 [Avant chute]
 
-Cette journée, était probablement la journée la plus froide depuis que le début de mon voyage. Après tout, je suis venu ici pour vivre des journées comme ça, alors je n'allais pas m'empêcher de vivre !
+Cette journée était probablement la journée la plus froide depuis que le début de mon voyage. Après tout, je suis venu ici pour vivre des journées comme ça, alors je n'allais pas m'empêcher de vivre !
 J'avais faim, je suis donc aller pêcher!
 
 
 [Chute]
 
-L'inverse de ce que je souhaitais s'est produit, c'est le poisson qui m'a attrapé... Me voici dans une eau glaciale, un froid que je n'avais jamais ressenti jusqu'à présent.
+L'inverse de ce que je souhaitais s'est produit, c'est le poisson qui m'a attrapé... Une force d'une intensité incroyable me fais glisser jusqu'à plonger dans l'eau glaciale. Un froid que je n'avais jamais ressenti jusqu'à présent. Enorme choc thermique, avec rien dans le ventre, bref j'ai failli y passer. J'aurais peut-être dû mieux m'équiper.
+
 
 [Après chute]
 
