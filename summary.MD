@@ -1,2 +1,2 @@
 Voyage au Pole Nord, les dangers de la pêche dans les glaciers. La survie d'un homme et la rencontre avec la zenitude.
-C'est l'histoire d'un gars, au pôle nord, qui tente de pecher, et qui tombe.
+C'est l'histoire d'un gars, qui tente de pecher, et qui tombe. Qui se voie confronter a lui même. Ce voyage du froid et de la douleur, partagé avec ses proches.
