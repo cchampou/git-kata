@@ -1,8 +1,13 @@
 
+[Avant chute]
+
+Cette journée, était probablement la jounrée la plus froide depuis que le début de mon voyage. Après tout, je suis venu ici pour vivre des journées comme ça, alors je n'allais pas m'empecher de vivre !
+J'avais faim, je suis donc aller pêcher!
+
+
 [Chute]
 
 L'inverse de ce que je souhaitais s'est produit, c'est le poisson qui m'a attrapé... Me voici dans une eau glaciale, un froid que je n'avais jamais ressenti jusqu'à présent.
-
 
 [Après chute]
 
