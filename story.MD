@@ -1,3 +1,8 @@
+Lundi 5 Août 2019
+
+Bonjour cher amis,
+
+Voici quelques informations sur mon voyage éffectué au pôle nord, Je vais vous parlez de mes différentes aventures chargé d'émotion.
 
 Cette journée était probablement la journée la plus froide depuis que le début de mon voyage. Après tout, je suis venu ici pour vivre des journées comme ça, alors je n'allais pas m'empêcher de vivre !
 J'avais faim, je suis donc aller pêcher!
