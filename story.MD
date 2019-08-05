@@ -3,7 +3,6 @@
 
 L'inverse de ce que je souhaitais s'est produit, c'est le poisson qui m'a attrapé... Me voici dans une eau glaciale, un froid que je n'avais jamais ressenti jusqu'à présent.
 
-
 [Après chute]
 
  
