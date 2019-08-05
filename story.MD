@@ -1,7 +1,7 @@
 
 [Avant chute]
 
-Cette journée, était probablement la jounrée la plus froide depuis que le début de mon voyage. Après tout, je suis venu ici pour vivre des journées comme ça, alors je n'allais pas m'empecher de vivre !
+Cette journée, était probablement la journée la plus froide depuis que le début de mon voyage. Après tout, je suis venu ici pour vivre des journées comme ça, alors je n'allais pas m'empêcher de vivre !
 J'avais faim, je suis donc aller pêcher!
 
 
@@ -12,6 +12,6 @@ L'inverse de ce que je souhaitais s'est produit, c'est le poisson qui m'a attrap
 [Après chute]
 
  
-Après cette désagréable chute, j'étais particulièrement énervé, en plus de mes blessures.
-Je suis donc allé voir mon pote Jack et sa légendaire zenitude, nous avons discuté ensemble.
-Ma jambe cassé se remet petit à petit, je devrais pouvoir reprendre la pêche d'ici quelques jours. Tu m'accompagneras ?
+Après cette désagréable chute, j'étais particulièrement énervé, en plus de mes blessures. J'ai la jambe cassée, des gelures aux doigts et orteils...
+Je suis allé voir mon pote Jack et sa légendaire zenitude, nous avons discuté ensemble, cela m'a permis de me calmer et me reposer.
+Ma jambe cassée se remet petit à petit, je devrais pouvoir reprendre la pêche d'ici quelques jours. Tu m'accompagneras ?
