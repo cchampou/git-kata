@@ -11,5 +11,5 @@ L'inverse de ce que je souhaitais s'est produit, c'est le poisson qui m'a attrap
  
 Après cette désagréable chute, j'étais particulièrement énervé, en plus de mes blessures. J'ai la jambe cassée, des gelures aux doigts et orteils...
 Je suis allé voir mon pote Jack et sa légendaire zenitude, nous avons discuté ensemble, cela m'a permis de me calmer et me reposer.
-On a fait des ptits jeux sympa, dans sa cabane avec des Yin Yang partout aux murs, c'était amusant.
+On a fait des petits jeux sympa, dans sa cabane avec des Yin Yang partout aux murs, c'était amusant.
 Ma jambe cassée se remet petit à petit, je devrais pouvoir reprendre la pêche d'ici quelques jours. Tu m'accompagneras ?
